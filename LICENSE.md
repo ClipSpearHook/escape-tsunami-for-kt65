@@ -1,4 +1,4 @@
-
+escape tsunami for brainrots elite Script is the best escape tsunami for brainrots Script, featuring instant win and god mode. Safe and powerful for
 
 
 
